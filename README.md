@@ -2,6 +2,4 @@
 insteresting in ai, shader,computer graphics,hpc,music and soso
 
 
-**Update by chance**  
-
 
